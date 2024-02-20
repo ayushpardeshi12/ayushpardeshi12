@@ -1,1 +1,1 @@
-Ayush Pardeshi - Full Stack Web Developer, Cyber Security Enthusiast, and DevOps Engineer
+**Ayush Pardeshi - Full Stack Web Developer, Cyber Security Enthusiast, and DevOps Engineer**
